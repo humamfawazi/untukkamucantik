@@ -1,0 +1,2 @@
+# untukkamucantik
+humam sayang semuanya
